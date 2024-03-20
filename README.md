@@ -1,6 +1,6 @@
 🌟 **Welcome to Shopify**, your passport to the world of fashion wonders! 🌟
 
-_Ready to turn heads?_ 💁‍♂️ **_Visit our site at_ [Shopify](https://www.shopify.com)**
+_Ready to turn heads?_ 💁‍♂️ **_Visit our site at_ [Shopify](https://symphonious-macaron-d203cd.netlify.app)**
 
 🚀 **_Explore Shopify Now!_** 🚀
 
